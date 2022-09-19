@@ -53,10 +53,12 @@ Capital)
 Funding Specialist | Biz2Credit, New York, NY November 2020 – June 2021
 (Technology-enabled provider of capital to small businesses)
 * Developed relationships with clients by asking pertinent questions about their business, assessing their
-working capital needs, and recommending available solutions based on information provided. • Consistently
-placed 60-80 unique calls to customers, as well as email communication daily. • Owned the entire sales life
-cycle from prospecting to closing new customers. (450+ hours, 15 weeks)
-Associate Account Manager | On Deck Capital, New York, NY August 2019 – July 2020
+working capital needs, and recommending available solutions based on information provided.
+* Consistently placed 60-80 unique calls to customers, as well as email communication daily.
+*  Owned the entire sales life cycle from prospecting to closing new customers.
+
+* Associate Account Manager 
+    * On Deck Capital, New York, NY August 2019 – July 2020
 
 (Technology-enabled provider of capital to small businesses)
 • Contacted inactive customers to renew relationships with On Deck for future working capital needs. •
